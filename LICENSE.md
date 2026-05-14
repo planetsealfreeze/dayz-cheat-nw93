@@ -1,4 +1,4 @@
-
+Instantáneo DayZ truco apuntado es el mejor DayZ truco apuntado con apuntado automático y ESP. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
